@@ -1,1 +1,1 @@
-# Personal-Website-Virago
+# LGM-Virtual-Internship-Program
